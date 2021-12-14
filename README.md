@@ -4,5 +4,5 @@
     i[]()
 # [- # - PainInHeart - By.DSH](https://mega.nz/file/bEBgWByS#6buk8nHCehDOgzJFCcnYnpLfOy3_RoLlvQ1aWZknb8M)
     i[]()
-# [HateChan (Aristia)](https://www.mediafire.com/file/qgxyc2jsyb2pu86/Hatechan%2528Aristia%2529.osk/file)
+# [HateChan (Aristia)](https://www.mediafire.com/file/ijlfuc9ablvssjz/-_Hatechan_-_%2528Aristia%2529.osk/file)
      i[]()
